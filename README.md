@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on fncs
 - 📫 How to reach me add me on fn Epic-xmasqshko
 - 😄 Pronouns: she/him/samsung toster
-- ⚡ Fun fact: I have a 7cm pp
+- ⚡ Fun fact: Its 7 centimeters
 
 <!---
 qvorop/qvorop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
